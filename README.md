@@ -1,1 +1,0 @@
-# VMRS-Web-Portal
